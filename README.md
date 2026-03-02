@@ -1,0 +1,1 @@
+Strava, Inc. is a U.S.-based company that operates a popular fitness tracking and social networking app primarily for cyclists and runners. Founded in 2009 by Mark Gainey and Michael Horvath, Strava allows users to record physical activities using GPS data, analyze performance metrics, and share workouts with a community of athletes.
